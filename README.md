@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AndroGamer29
 - 👀 I’m interested in Creatings repository
 - 🌱 I’m currently learning ethical hackings
-- 💞️ I’m looking to collaborate on olegs about mobox
+- 💞️ I’m looking to collaborate on olegos2 about mobox
 - 📫 How to reach me mcaballeroalmeida@gmail.com
 - 😄 Pronouns: Andro
 - ⚡ Fun fact: Me Gusta Aprender 
