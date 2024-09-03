@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AndroGamer29
 - 👀 I’m interested in Creatings repository
-- 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning ethical hackings
+- 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
 - 😄 Pronouns: Andro
 - ⚡ Fun fact: ...
